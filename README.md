@@ -1,4 +1,4 @@
-# GOBB 7 Credits
+# Garten of Banban VII Credits
 
 "Firework Red Rocket" (https://skfb.ly/ozORo) by
 Incg5764 is licensed under Creative Commons Attribution
